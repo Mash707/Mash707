@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mash707
-- 👀 I’m interested in Coding(C++)
+- 👀 I’m interested in Coding and development
 - I am a Fresher
 -
 - 📫 How to reach me divyanshugupta585@gmail.com
