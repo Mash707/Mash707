@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Mash707
-- 👀 I try to do development
+- 👀 I try to make other projects better
 
